@@ -1064,7 +1064,7 @@ Did you know that one egg is always un oeuf?
 
 ## Joke 180
 
-Ask a wind turbine about its taste in music, and it's likely to say, “I’m a big metal fan.”
+Did you know, if you ask a wind turbine about its taste in music, it's most likely to say “I’m a big metal fan”?
 
 ---
 
@@ -1094,7 +1094,7 @@ You don’t meet many people called Lance nowadays, but, in medieval times, peop
 
 ## Joke 185
 
-“When I have alphabet soup, I eat only the vowels.” “Why?” “Sometimes.”
+Student, “When I have alphabet soup, I eat only the vowels.” English teacher, “Why?” Student, “Sometimes.”
 
 ---
 
@@ -1106,7 +1106,7 @@ Why do Scandinavian warships have barcodes on their sides? So that, when they re
 
 ## Joke 187
 
-I went to a shop specialising in hard-to-find records. They'd just thrown them up on the shelves every which way.
+I went to a shop specialising in hard-to-find vinyl. They'd just put those records up on the shelves any which way.
 
 ---
 
@@ -1197,6 +1197,12 @@ Someone stole all the toilets from our local police station without leaving a si
 ## Joke 202
 
 A magician was driving down the road, when he suddenly turned into a garage.
+
+---
+
+## Joke 203
+
+Why do divers fall backwards into the sea? Because, if they fell forwards, they'd still be in the boat.
 
 ---
 		
