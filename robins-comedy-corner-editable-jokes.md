@@ -125,10 +125,6 @@ People who use telescopic selfie sticks really need to take a good, long look at
 
 ---
 
-## Joke 20
-
-
----
 
 ## Joke 21
 
@@ -460,10 +456,6 @@ Does anyone know how to fix broken hinges? My door's always open.
 
 ---
 
-## Joke 76
-
-
----
 
 ## Joke 77
 
@@ -537,10 +529,6 @@ The easiest time to add insult to injury is when you're signing someone's cast.
 
 ---
 
-## Joke 89
-
-
----
 
 ## Joke 90
 
@@ -602,10 +590,6 @@ Before you insult someone, first walk a mile in their shoes. That way, when you 
 
 ---
 
-## Joke 100
-
-
----
 
 ## Joke 101
 
@@ -643,10 +627,6 @@ My therapist told me that the way to achieve inner peace was to finish everythin
 
 ---
 
-## Joke 107
-
-
----
 
 ## Joke 108
 
@@ -666,20 +646,8 @@ The first time I met my wife, I knew she was a keeper. She was wearing enormous 
 
 ---
 
-## Joke 111
 
 
----
-
-## Joke 112
-
-
----
-
-## Joke 113
-
-
----
 
 ## Joke 114
 
@@ -705,10 +673,6 @@ It's amazing to think that every Scotsman started life as a Scotch egg.
 
 ---
 
-## Joke 118
-
-
----
 
 ## Joke 119
 
@@ -933,10 +897,6 @@ Wally got a job as a clown in a circus. One day, the lion swallowed him in a sin
 
 ---
 
-## Joke 156
-
-
----
 
 ## Joke 157
 
@@ -986,15 +946,7 @@ Wally and a friend were photographing wildlife when they spotted a cheetah runni
 
 ---
 
-## Joke 165
 
-
----
-
-## Joke 166
-
-
----
 
 ## Joke 167
 
@@ -1008,40 +960,12 @@ I have an addiction to cheddar, but it's only mild.
 
 ---
 
-## Joke 169
 
 
----
-
-## Joke 170
 
 
----
-
-## Joke 171
 
 
----
-
-## Joke 172
-
-
----
-
-## Joke 173
-
-
----
-
-## Joke 174
-
-
----
-
-## Joke 175
-
-
----
 
 ## Joke 176
 
@@ -1073,10 +997,6 @@ I used to be addicted to the Hokey Cokey, but I turned myself around.
 
 ---
 
-## Joke 182
-
-
----
 
 ## Joke 183
 
@@ -1201,6 +1121,48 @@ A magician was driving down the road, when he suddenly turned into a garage.
 ## Joke 203
 
 Why do divers fall backwards into the sea? Because, if they fell forwards, they'd still be in the boat.
+
+---
+
+## Joke 204
+
+I was going to sail around the globe in the world’s smallest ship, but I bottled it.
+
+---
+
+## Joke 205
+
+I used to drive a 4×4 but I totalled it, so now I drive a 16.
+
+---
+
+## Joke 206
+
+People always complain when new coins come out, but I think they just don't like change.
+
+---
+
+## Joke 207
+
+I was told my password needed eight characters, so I entered 'SnowWhiteandtheSevenDwarfs'.
+
+---
+
+## Joke 208
+
+I’ve just returned from a once-in-a-lifetime holiday. Never again.
+
+---
+
+## Joke 209
+
+There’s a fine line between a numerator and a denominator.
+
+---
+
+## Joke 210
+
+Surely every car is a people carrier?
 
 ---
 		
