@@ -1165,4 +1165,124 @@ There’s a fine line between a numerator and a denominator.
 Surely every car is a people carrier?
 
 ---
+
+## Joke 211
+
+Combine harvesters and you’ll have an enormous restaurant.
+
+---
+
+## Joke 212
+
+We have two boys, Five and Six. We aren’t very good at naming things.
+
+---
+
+## Joke 213
+
+Whenever somebody says, “I don’t believe in coincidences,” I reply, “Oh my goodness—neither do I!”
+
+---
+
+## Joke 214
+
+After six hours learning basic semaphore, I was really flagging.
+
+---
+
+## Joke 215
+
+People who say bath bombs are relaxing have clearly never tried carrying one home in the rain.
+
+---
+
+## Joke 216
+
+I’m not nostalgic, although I used to be. Those were the days.
+
+---
+
+## Joke 217
+
+Tables: are they really furniture, or merely extra floor on stilts?
+
+---
+
+## Joke 218
+
+What did the buffalo say when its child left for university? “Bison.”
+
+---
+
+## Joke 219
+
+I’ve got a joke about Elton John. It’s a little bit funny.
+
+---
+
+## Joke 220
+
+A cowboy asked me to help him round up 18 cows. I said, “Certainly—that’s 20 cows.”
+
+---
+
+## Joke 221
+
+A thesaurus is wonderful. There’s no other word for it.
+
+---
+
+## Joke 222
+
+The advantage of lending someone your time machine is that you get it back immediately.
+
+---
+
+## Joke 223
+
+I spent the entire morning constructing a time machine. That’s four hours of my life I’m definitely getting back.
+
+---
+
+## Joke 224
+
+I used to live hand to mouth. What transformed my life? Cutlery.
+
+---
+
+## Joke 225
+
+Drive-through restaurants are more expensive than you'd think, once you factor in the whole car hire thing.
+
+---
+
+## Joke 226
+
+I used to play in a band called The Prevention. We hoped people would say we were better than The Cure.
+
+---
+
+## Joke 227
+
+I collect all the jumpers left in the park at weekends. It’s a difficult job because they keep moving the goalposts.
+
+---
+
+## Joke 228
+
+What’s the difference between a hippo and a Zippo? One is very heavy; the other is a little lighter.
+
+---
+
+## Joke 229
+
+If I could take just one thing to a desert island, I probably wouldn’t go.
+
+---
+
+## Joke 230
+
+People are always telling me to live my dreams, but I really don’t want to be naked in an exam I haven’t revised for.
+
+---
 		
