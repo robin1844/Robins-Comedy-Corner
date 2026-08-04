@@ -127,7 +127,6 @@ People who use telescopic selfie sticks really need to take a good, long look at
 
 ## Joke 20
 
-If you don't know what introspection is, you need to take a long, hard look at yourself.
 
 ---
 
@@ -313,7 +312,7 @@ Why did the man wave carrots over the sink? Because he was trying to get the har
 
 ## Joke 51
 
-Why did the man draw rabbits on his head? Because, from a distance, they looked like hares.
+Why did the bald man draw rabbits on his head? Because, from a distance, they looked like hares.
 
 ---
 
@@ -355,7 +354,7 @@ I met a Dutch girl with inflatable shoes last week. I phoned her to arrange a da
 
 ## Joke 58
 
-I actually have my own private jet. The rest of the jacuzzi belongs to my mum.
+I actually have my own private jet. The rest of the jacuzzi belongs to my Mum.
 
 ---
 
@@ -504,7 +503,7 @@ I was thinking of running a marathon, but it might be too difficult getting all 
 
 ## Joke 83
 
-A banana walked into a bar. The barman said, "Sorry, we don't serve food in here."
+A pickle walked into a bar. The barman said, "Sorry, we don't serve food in here."
 
 ---
 
@@ -563,7 +562,7 @@ I like going into The Body Shop and shouting, "I've already got one!" and runnin
 
 ## Joke 93
 
-A man went to the doctor and said, "I've hurt my arm in several places." The doctor replied, "Well, don't go to those places any more."
+A man went to the doctor and said, "I've hurt my arm in several places." The doctor replied, "Well, I'd stay away from those places if I were you."
 
 ---
 
@@ -708,7 +707,6 @@ It's amazing to think that every Scotsman started life as a Scotch egg.
 
 ## Joke 118
 
-It's amazing to think that the Chinese language started as English in England. Then one person whispered it to another person, who whispered it to another person, and so on...
 
 ---
 
@@ -834,7 +832,7 @@ A man went into a Spanish bar and admired the bulls' heads mounted on the wall. 
 
 ## Joke 139
 
-A boy asked his father, "Dad, will you do my homework for me?" His father said, "No. That wouldn't be right." The boy replied, "Well, you could at least try."
+A boy asked his father, "Dad, will you do my homework for me?" His father said, "No. it wouldn't be right." The boy replied, "Well, you could at least try."
 
 ---
 
@@ -924,13 +922,14 @@ Wally went to the doctor with a small piece of lettuce poking out of his ear. "I
 
 ## Joke 154
 
-The doctor said, "Wally, I'm afraid you don't have long to live." "Can I have a second opinion?" asked Wally. "Certainly," replied the doctor. "Your feet smell as well." Then Wally asked, "Doctor, how long have I got?" "Ten," said the doctor. "Ten what? Years? Months? Weeks?" The doctor continued, "Nine, eight, seven..."
+The doctor said, "Wally, I'm afraid you don't have long to live." "Can I have a second opinion?" asked Wally. "Certainly," replied the doctor. "Your feet smell as well." 
+Then Wally asked, "Doctor, how long have I got?" "Ten," said the doctor. "Ten what? Years? Months? Weeks?" The doctor continued, "Nine, eight, seven..."
 
 ---
 
 ## Joke 155
 
-Wally got a job as a clown in a circus. One day, a lion swallowed him in a single bite, but immediately spat him out because he tasted funny.
+Wally got a job as a clown in a circus. One day, the lion swallowed him in a single bite, but then spat him out again because he tasted funny.
 
 ---
 
@@ -977,7 +976,7 @@ Wally and two friends were running away from the police when they hid in a barn 
 
 ## Joke 163
 
-Wally and his wife were flying to America when, over the Atlantic, the pilot announced that one of the engines had failed, but not to worry as the plane can happily fly on three and that the flight would take an hour longer as a result. A little later, a second engine failed, and the pilot reassured everyone that all was fine but that that it would add another hour to the journey. A little later the same thing happened with the third engine. Wally turned to his wife and said, "I hope the last engine doesn't fail, or we'll be up here all day."
+Wally and his wife were flying to America when, over the Atlantic, the pilot announced that one of the engines had failed, but not to worry as the plane can happily fly on three - although the flight will now take an hour longer. A little later, a second engine failed, and the pilot reassured everyone that all was fine but that that it would add another hour to the journey. A little later the same thing happened with the third engine. Wally turned to his wife and said, "I hope the last engine doesn't fail, or we'll be up here all day."
 
 ---
 
@@ -1052,7 +1051,7 @@ A man thought his wife's hearing was deteriorating, so he decided to test it whi
 
 ## Joke 177
 
-A farmer told his talking sheepdog, "Go into that field, round up the sheep and put them in the pen." The sheepdog returned a little later. "Did you do that?" asked the farmer. "Sure did," said the sheepdog. "By the way, how many sheep were there?" asked the farmer. "Forty sheep," replied the sheepdog. "That's funny. I only own 38 sheep," said the farmer. The sheepdog looked at him. "But you told me to round them up."
+A farmer told his talking sheepdog, "Go down to the valley, round up the sheep and put them in the pen." The sheepdog returned a little later. "Did you do that?" asked the farmer. "Sure did," said the sheepdog. "By the way, how many sheep were there?" asked the farmer. "Forty sheep," replied the sheepdog. "That's funny. I only own 38 sheep," said the farmer. The sheepdog looked at him. "But you told me to round them up."
 
 ---
 
@@ -1076,7 +1075,6 @@ I used to be addicted to the Hokey Cokey, but I turned myself around.
 
 ## Joke 182
 
-A young weasel walked into a bar, and the barman asked, “What can I get you?” “Pop,” went the weasel.
 
 ---
 
@@ -1094,7 +1092,7 @@ You don’t meet many people called Lance nowadays, but, in medieval times, peop
 
 ## Joke 185
 
-Student, “When I have alphabet soup, I eat only the vowels.” English teacher, “Why?” Student, “Sometimes.”
+Student, “When I have alphabet soup, I eat only the vowels.” English teacher, “Why?” Student, “Sometimes.” (“Y?” 🤦)
 
 ---
 
@@ -1106,7 +1104,7 @@ Why do Scandinavian warships have barcodes on their sides? So that, when they re
 
 ## Joke 187
 
-I went to a shop specialising in hard-to-find vinyl. They'd just put those records up on the shelves any which way.
+I went to a shop specialising in hard-to-find vinyl. They'd literally thrown those records up on the shelves any which way.
 
 ---
 
