@@ -125,7 +125,6 @@ People who use telescopic selfie sticks really need to take a good, long look at
 
 ---
 
-
 ## Joke 21
 
 My therapist said I have a preoccupation with vengeance. We'll see about that.
@@ -456,7 +455,6 @@ Does anyone know how to fix broken hinges? My door's always open.
 
 ---
 
-
 ## Joke 77
 
 An English teacher climbed onto his desk and stood on a rug. He said, "I sound like what I am. What am I? I'm on a mat up here." (Onomatopoeia 🤦)
@@ -529,7 +527,6 @@ The easiest time to add insult to injury is when you're signing someone's cast.
 
 ---
 
-
 ## Joke 90
 
 A hotel minibar allows you to see into the future and discover what a can of coke will cost in 10 years' time.
@@ -590,7 +587,6 @@ Before you insult someone, first walk a mile in their shoes. That way, when you 
 
 ---
 
-
 ## Joke 101
 
 My New Year's resolution is to get in shape. I've chosen round.
@@ -627,7 +623,6 @@ My therapist told me that the way to achieve inner peace was to finish everythin
 
 ---
 
-
 ## Joke 108
 
 I always bring my wife breakfast in my pyjamas. Is she grateful? Is she ever. She says she'd rather have it on a tray.
@@ -645,9 +640,6 @@ Exit signs? They're on the way out.
 The first time I met my wife, I knew she was a keeper. She was wearing enormous gloves.
 
 ---
-
-
-
 
 ## Joke 114
 
@@ -672,7 +664,6 @@ My mum's called Jean, and her friend is too. They went to a nightclub, but the b
 It's amazing to think that every Scotsman started life as a Scotch egg.
 
 ---
-
 
 ## Joke 119
 
@@ -897,7 +888,6 @@ Wally got a job as a clown in a circus. One day, the lion swallowed him in a sin
 
 ---
 
-
 ## Joke 157
 
 Wally came home and said to his wife, "Somebody complimented me on my driving today. They left a note on my windscreen saying, 'Parking fine.'"
@@ -946,8 +936,6 @@ Wally and a friend were photographing wildlife when they spotted a cheetah runni
 
 ---
 
-
-
 ## Joke 167
 
 I was passing a cheese shop when the owner threw a piece of cheddar at me. I said, "That was mature."
@@ -959,13 +947,6 @@ I was passing a cheese shop when the owner threw a piece of cheddar at me. I sai
 I have an addiction to cheddar, but it's only mild.
 
 ---
-
-
-
-
-
-
-
 
 ## Joke 176
 
@@ -996,7 +977,6 @@ Did you know, if you ask a wind turbine about its taste in music, it's most like
 I used to be addicted to the Hokey Cokey, but I turned myself around.
 
 ---
-
 
 ## Joke 183
 
@@ -1285,4 +1265,165 @@ If I could take just one thing to a desert island, I probably wouldn’t go.
 People are always telling me to live my dreams, but I really don’t want to be naked in an exam I haven’t revised for.
 
 ---
-		
+
+## Joke 231
+
+I gave away all my dead batteries… free of charge.
+
+---
+
+## Joke 232
+
+I told my suitcase there will be no vacation this year. Now I'm dealing with emotional baggage.
+
+---
+
+## Joke 233
+
+I told my wife she should embrace her mistakes… she hugged me.
+
+---
+
+## Joke 234
+
+Never read a pop-up book about giraffes.
+
+---
+
+## Joke 235
+
+I keep a dog for unconditional love, and a cat to remind me I don't deserve it.
+
+---
+
+## Joke 236
+
+My boss told me to start every presentation with a joke. The first slide now reads: "My Salary."
+
+---
+
+## Joke 237
+
+I spent a lot of time childproofing my house… But the kids still get in.
+
+---
+
+## Joke 238
+
+Geology rocks, but geography's where it's at.
+
+---
+
+## Joke 239
+
+Don't you hate it when someone answers their own questions? I do.
+
+---
+
+## Joke 240
+
+Time may be a great healer but it's also a lousy beautician.
+
+---
+
+## Joke 241
+
+I intend to live forever. So far, so good.
+
+---
+
+## Joke 242
+
+I once worked at a keyboard factory, but they let me go — I wasn't putting in enough Shifts.
+
+---
+
+## Joke 243
+
+You know there is a problem with the education system when you realize that out of the 3 R's only one begins with an R.
+
+---
+
+## Joke 244
+
+A doctor gave a man six months to live. The man couldn't pay his bill, so he gave him another six months.
+
+---
+
+## Joke 245
+
+I haven't spoken to my wife in years. It's rude to interrupt.
+
+---
+
+## Joke 246
+
+Most people are shocked when they find out how bad I am as an electrician.
+
+---
+
+## Joke 247
+
+What has four legs, swims and starts with a T? Two ducks.
+
+---
+
+## Joke 248
+
+What's the difference between fried eggs and pea soup? Anyone can fry eggs.
+
+---
+
+## Joke 249
+
+I like telling Dad jokes. Sometimes he even laughs!
+
+---
+
+## Joke 250
+
+Did you know that I can jump higher than a house? It's true. Houses can't jump.
+
+---
+
+## Joke 251
+
+If life gives you melons, you might just be dyslexic.
+
+---
+
+## Joke 252
+
+What did the fish say after swimming into a wall? "Dam."
+
+---
+
+## Joke 253
+
+Waiter: "Do you want a box for your leftovers?" Man: "No, but I'll wrestle you for them."
+
+---
+
+## Joke 254
+
+What did one snowman say to the other? "Can you smell carrots?"
+
+---
+
+## Joke 255
+
+I bought my husband a fridge for Christmas. I can't wait to see his face light up.
+
+---
+
+## Joke 256
+
+How do dog catchers get paid? By the pound.
+
+---
+
+## Joke 257
+
+If anyone knows how to stop condensation, please call round. The kettle's always on.
+
+---
