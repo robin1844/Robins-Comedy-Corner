@@ -1088,7 +1088,7 @@ What did the grape say when the elephant sat on it? Nothing - it just gave a lit
 
 ## Joke 201
 
-Someone stole all the toilets from our local police station without leaving a single clue. Now the cops have nothing to go on.
+Someone stole all the toilets from the police station. Detectives have nothing to go on.
 
 ---
 
@@ -1136,7 +1136,7 @@ I’ve just returned from a once-in-a-lifetime holiday. Never again.
 
 ## Joke 209
 
-There’s a fine line between a numerator and a denominator.
+There’s a fine line between a numerator and a denominator. Speaking of fractions; never talk to Pi. It'll go on and on forever.
 
 ---
 
@@ -1425,5 +1425,179 @@ How do dog catchers get paid? By the pound.
 ## Joke 257
 
 If anyone knows how to stop condensation, please call round. The kettle's always on.
+
+---
+
+## Joke 258
+
+I got fired on the first day of my new job as a set designer. I left without making a scene.
+
+---
+
+## Joke 259
+
+My wife said I'm getting fat but, in my defence, I've had a lot on my plate lately.
+
+---
+
+## Joke 260
+
+To the person who stole my place in the queue, just be aware I'm after you now.
+
+---
+
+## Joke 261
+
+I don't believe in astrology. They say that Librans hardly ever do.
+
+---
+
+## Joke 262
+
+A lorry carrying snooker supplies shed its load right across the motorway today. There are cues in both directions.
+
+---
+
+## Joke 263
+
+What's another word for thesaurus?
+
+---
+
+## Joke 264
+
+I think it's wrong that only one company makes the game Monopoly.
+
+---
+
+## Joke 265
+
+Some people have a way with words, and other people... not have way.
+
+---
+
+## Joke 266
+
+I'm the youngest of three. My parents are both older.
+
+---
+
+## Joke 267
+
+Colin had a neck brace fitted a few weeks ago and since then he's never looked back.
+
+---
+
+## Joke 268
+
+My wife said, "Did you know butterflies only live for one day?" I said, "That's a myth." She said, "No, it's definitely a butterfly."
+
+---
+
+## Joke 269
+
+My maths teacher called me average. That's mean.
+
+---
+
+## Joke 270
+
+I accidentally swallowed some food colouring. The doctor says I'm OK, but I feel like I've dyed a little inside.
+
+---
+
+## Joke 271
+
+Two fish are in a tank. One says, "Do you know how to drive this thing?"
+
+---
+
+## Joke 272
+
+I asked my dog what's two minus two. He said nothing.
+
+---
+
+## Joke 273
+
+I tried to organise a professional hide-and-seek competition, but good players are really hard to find.
+
+---
+
+## Joke 274
+
+My optician told me I was colour-blind. That came completely out of the purple.
+
+---
+
+## Joke 275
+
+I have an inferiority complex, but it's not a very good one.
+
+---
+
+## Joke 276
+
+I went to the zoo and saw a baguette in a cage. The keeper told me it was bread in captivity.
+
+---
+
+## Joke 277
+
+I bought a dog from a blacksmith. As soon as I got him home, he made a bolt for the door.
+
+---
+
+## Joke 278
+
+I bought a wooden car. Wooden engine, wooden wheels, wooden doors. It wooden go.
+
+---
+
+## Joke 279
+
+I saw an advert saying, "Radio for sale - £1, volume stuck on full." I thought, I can't turn that down.
+
+---
+
+## Joke 280
+
+Apparently someone in London gets stabbed every 52 seconds. Poor bloke.
+
+---
+
+## Joke 281
+
+My friend keeps saying, "Cheer up - it could be worse. You could be stuck underground in a hole full of water." I know he means well.
+
+---
+
+## Joke 282
+
+My wife accused me of being immature so I told her to get out of my fort.
+
+---
+
+## Joke 283
+
+I don't like it when people use big words just to sound perspicacious.
+
+---
+
+## Joke 284
+
+My friend got crushed by a pile of books. He's only got his shelf to blame.
+
+---
+
+## Joke 285
+
+I recently started fencing. Luckily, the neighbours say they'll pay half.
+
+---
+
+## Joke 286
+
+I bought my friend an elephant for his room. He said, "Thank you." I said, "Don't mention it."
 
 ---
