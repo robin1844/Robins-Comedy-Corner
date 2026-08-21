@@ -1400,7 +1400,7 @@ What did the fish say after swimming into a wall? "Dam."
 
 ## Joke 253
 
-Waiter: "Do you want a box for your leftovers?" Man: "No, but I'll wrestle you for them."
+Waiter: "Do you want a box for your leftovers?" Man: "No, but I'll arm wrestle you for the bill."
 
 ---
 
@@ -1599,5 +1599,29 @@ I recently started fencing. Luckily, the neighbours say they'll pay half.
 ## Joke 286
 
 I bought my friend an elephant for his room. He said, "Thank you." I said, "Don't mention it."
+
+---
+
+## Joke 287
+
+I got a job in a factory making chess pieces. I'm on knights this week.
+
+---
+
+## Joke 288
+
+I'd give my right arm to be ambidextrous.
+
+---
+
+## Joke 289
+
+My dad keeps trying to persuade me to get an organ donor card. He's a man after my own heart.
+
+---
+
+## Joke 290
+
+I did my comedy act over Zoom the other day. Turns out I'm not remotely funny.
 
 ---
