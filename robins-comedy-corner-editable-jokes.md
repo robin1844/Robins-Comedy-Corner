@@ -1458,12 +1458,6 @@ A lorry carrying snooker supplies shed its load right across the motorway today.
 
 ---
 
-## Joke 263
-
-What's another word for thesaurus?
-
----
-
 ## Joke 264
 
 I think it's wrong that only one company makes the game Monopoly.
@@ -1623,5 +1617,17 @@ My dad keeps trying to persuade me to get an organ donor card. He's a man after 
 ## Joke 290
 
 I did my comedy act over Zoom the other day. Turns out I'm not remotely funny.
+
+---
+
+## Joke 291
+
+Apparently one in three Britons is conceived in an IKEA bed, which seems improbable given how brightly lit the shops are.
+
+---
+
+## Joke 292
+
+Wally got sacked three days into his new job painting the white lines on the roads. On his first day, he painted eight miles. On his second day, he painted three miles. On his third day, he managed only one mile. The boss was puzzled and asked, “Wally, why are you painting less every day?” Wally said, “Because every day, I get farther and farther away from the can of paint.”
 
 ---
