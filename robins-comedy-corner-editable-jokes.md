@@ -1220,7 +1220,7 @@ The advantage of lending someone your time machine is that you get it back immed
 
 ## Joke 223
 
-I spent the entire morning constructing a time machine. That’s four hours of my life I’m definitely getting back.
+I spent the entire morning building a time machine. That’s four hours of my life I’m definitely getting back.
 
 ---
 
@@ -1629,5 +1629,11 @@ Apparently one in three Britons is conceived in an IKEA bed, which seems improba
 ## Joke 292
 
 Wally got sacked three days into his new job painting the white lines on the roads. On his first day, he painted eight miles. On his second day, he painted three miles. On his third day, he managed only one mile. The boss was puzzled and asked, “Wally, why are you painting less every day?” Wally said, “Because every day, I get farther and farther away from the can of paint.”
+
+---
+
+## Joke 293
+
+Just spent 45 minutes on the treadmill. Tomorrow I'll turn it on.
 
 ---
