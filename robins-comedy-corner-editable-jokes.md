@@ -1637,3 +1637,333 @@ Wally got sacked three days into his new job painting the white lines on the roa
 Just spent 45 minutes on the treadmill. Tomorrow I'll turn it on.
 
 ---
+
+## Joke 294
+
+Why don't you see hippopotamuses hiding in trees? They're really good at it.
+
+---
+
+## Joke 295
+
+Why do bears have hairy coats? Fur protection.
+
+---
+
+## Joke 296
+
+Why did the fireman wear bright orange braces? To hold his trousers up.
+
+---
+
+## Joke 297
+
+Where was the Declaration of Independence signed? At the bottom!
+
+---
+
+## Joke 298
+
+When will the little snake arrive? I don't know, but he won't be long…
+
+---
+
+## Joke 299
+
+When people are sad, I sometimes let them colour in my tattoos. Sometimes all they need is a shoulder to crayon.
+
+---
+
+## Joke 300
+
+When I left school, I passed every one of my exams with the exception of Greek mythology. It always was my Achilles elbow.
+
+---
+
+## Joke 301
+
+What's orange and sounds like a parrot? A carrot.
+
+---
+
+## Joke 302
+
+What's blue and not very heavy? Light blue.
+
+---
+
+## Joke 303
+
+What was a more important invention than the first telephone? The second one.
+
+---
+
+## Joke 304
+
+What is worse than finding a worm in your apple? Finding half a worm.
+
+---
+
+## Joke 305
+
+What is the least spoken language in the world? Sign language.
+
+---
+
+## Joke 306
+
+What is the difference between ignorance and apathy? I don't know and I don't care.
+
+---
+
+## Joke 307
+
+What is the leading cause of dry skin? Towels.
+
+---
+
+## Joke 308
+
+What is red and smells like blue paint? Red paint!
+
+---
+
+## Joke 309
+
+What does a clock do when it's hungry? It goes back four seconds!
+
+---
+
+## Joke 310
+
+What do you get hanging from apple trees? Sore arms.
+
+---
+
+## Joke 311
+
+What did the janitor say when he jumped out of the cupboard? “Supplies!”
+
+---
+
+## Joke 312
+
+Two parrots are sitting on a perch. One turns to the other and asks, “Do you smell fish?”
+
+---
+
+## Joke 313
+
+The Swiss must have been pretty confident in their chances of victory if they included a corkscrew in their army knife.
+
+---
+
+## Joke 314
+
+The urge to sing the Lion King song is just a whim away.
+
+---
+
+## Joke 315
+
+The great thing about stationery shops is they're always in the same place…
+
+---
+
+## Joke 316
+
+Some people say that I never got over my obsession with Phil Collins. But take a look at me now.
+
+---
+
+## Joke 317
+
+Somebody stole my Microsoft Office and they're going to pay—you have my Word.
+
+---
+
+## Joke 318
+
+Pie is $2.50 in Jamaica and $3.00 in the Bahamas. These are the pie-rates of the Caribbean.
+
+---
+
+## Joke 319
+
+It's been months since I bought the book How to Scam People Online. It still hasn't turned up.
+
+---
+
+## Joke 320
+
+I've started telling everyone about the benefits of eating dried grapes. It's all about raisin awareness.
+
+---
+
+## Joke 321
+
+How do you find Will Smith in the snow? Look for fresh prints.
+
+---
+
+## Joke 322
+
+Have you heard about corduroy pillows? They're making headlines!
+
+---
+
+## Joke 323
+
+For Valentine's Day, I decided to get my wife some beads for an abacus. You know, it's those little things that count.
+
+---
+
+## Joke 324
+
+Doorbells—don't knock 'em.
+
+---
+
+## Joke 325
+
+Don't look at the eclipse through a colander. You'll strain your eyes.
+
+---
+
+## Joke 326
+
+Do I enjoy making courthouse puns? Guilty.
+
+---
+
+## Joke 327
+
+Do you know what the word “was” was initially? Before “was” was “was”, “was” was “is”.
+
+---
+
+## Joke 328
+
+Did you know Albert Einstein was a real person? All this time, I thought he was just a theoretical physicist!
+
+---
+
+## Joke 329
+
+Did you know crocodiles can grow up to 15 feet? But most just have four.
+
+---
+
+## Joke 330
+
+Did you know that you've got more than the average number of legs? It's true. Some people have only one or none, and no one has three, so you do the maths…
+
+---
+
+## Joke 331
+
+Did you hear about the campsite that was visited by Bigfoot? It got in tents.
+
+---
+
+## Joke 332
+
+Did you hear that David lost his ID? Now we just call him Dav.
+
+---
+
+## Joke 333
+
+Chances are, if you've seen one shopping centre, you've seen a mall.
+
+---
+
+## Joke 334
+
+Cosmetic surgery used to be such a taboo subject. Now you can talk about Botox and nobody raises an eyebrow.
+
+---
+
+## Joke 335
+
+As I get older, I think of all the people I lost along the way. Maybe a career as a tour guide wasn't such a good idea.
+
+---
+
+## Joke 336
+
+As I suspected, someone has been adding soil to my garden. The plot thickens.
+
+---
+
+## Joke 337
+
+Americans can't switch from pounds to kilograms overnight. That would cause mass confusion.
+
+---
+
+## Joke 338
+
+A termite walks into a bar and asks, “Is the bar tender here?”
+
+---
+
+## Joke 339
+
+A ship carrying red paint and a ship carrying blue paint have collided in the Caribbean. Apparently, the survivors are marooned.
+
+---
+
+## Joke 340
+
+A plane crashed exactly on the border between two countries. Where did they bury the survivors? Nowhere. You don't bury survivors.
+
+---
+
+## Joke 341
+
+99.9% of people are dumb! Fortunately, I belong to the remaining 1%.
+
+---
+
+## Joke 342
+
+A man tried to sell me a coffin today. I told him that's the last thing I need.
+
+---
+
+## Joke 343
+
+I asked my date to go to the gym the other day. They never showed up. That's when I knew we wouldn't work out.
+
+---
+
+## Joke 344
+
+I asked the checkout girl for a date. She said, “They're in the fruit aisle next to the bananas.”
+
+---
+
+## Joke 345
+
+I never wanted to believe that my dad was stealing from his job as a road worker. But when I got home, all the signs were there.
+
+---
+
+## Joke 346
+
+My boss told me he was going to fire the person with the worst posture. I have a hunch it might be me.
+
+---
+
+## Joke 347
+
+My friend said to me, “What rhymes with orange.” I said, “No, it doesn't.”
+
+---
+
+## Joke 348
+
+What did the green grape say to the purple grape? “Breathe!”
+
+---
