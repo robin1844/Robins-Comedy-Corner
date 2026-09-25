@@ -253,7 +253,7 @@ What do you call a chicken looking at a pile of lettuce? Chicken Caesar salad.
 
 ## Joke 42
 
-My girlfriend left me because of my unhealthy obsession with pasta. I'm feeling cannelloni right now. (Kind of lonely 🤦)
+My girlfriend left me because of my unhealthy obsession with pasta. I'm feeling cannelloni right now. (Kind of lonely 🤦).
 
 ---
 
@@ -457,7 +457,7 @@ Does anyone know how to fix broken hinges? My door's always open.
 
 ## Joke 77
 
-An English teacher climbed onto his desk and stood on a rug. He said, "I sound like what I am. What am I? I'm on a mat up here." (Onomatopoeia 🤦)
+An English teacher climbed onto his desk and stood on a rug. He said, "I sound like what I am. What am I? I'm on a mat up here." (Onomatopoeia 🤦).
 
 ---
 
@@ -739,7 +739,7 @@ The anti-ageing advert I'd like to see is a baby covered in cream, screaming, "A
 
 ## Joke 131
 
-I said, "Doctor, I feel terrible. I was eating this apple..." The doctor interrupted me. "Wait. How many apples do you eat each day?" "One," I replied. The doctor recoiled and said, "Woah! You're on your own!"
+I said, "Doctor, I feel terrible. I was eating this apple…" The doctor interrupted me. "Wait. How many apples do you eat each day?" "One," I replied. The doctor recoiled and said, "Woah! You're on your own!"
 
 ---
 
@@ -769,13 +769,13 @@ The Grim Reaper came for me last night, but I fought him off with the vacuum cle
 
 ## Joke 136
 
-The mummy couldn't believe it when he fell into the river. He was in denial. (The Nile 🤦)
+The mummy couldn't believe it when he fell into the river. He was in denial. (The Nile 🤦).
 
 ---
 
 ## Joke 137
 
-There was a Mexican magician who said, "I will disappear on the count of three. Uno... dos..." Then he vanished without a 'Tres'.
+There was a Mexican magician who said, "I will disappear on the count of three. Uno… dos…" Then he vanished without a 'Tres'.
 
 ---
 
@@ -829,7 +829,7 @@ Wally arrived at a fancy-dress party with a woman on his back. "What have you co
 
 ## Joke 146
 
-Wally got a job as a guide at Stonehenge. "How old is it?" asked a visitor. "Five thousand and three years old," said Wally. "How can you possibly be so precise?" he asked. "Well, when I started here three years ago, they told me it was five thousand years old..."
+Wally got a job as a guide at Stonehenge. "How old is it?" asked a visitor. "Five thousand and three years old," said Wally. "How can you possibly be so precise?" he asked. "Well, when I started here three years ago, they told me it was five thousand years old…"
 
 ---
 
@@ -877,8 +877,7 @@ Wally went to the doctor with a small piece of lettuce poking out of his ear. "I
 
 ## Joke 154
 
-The doctor said, "Wally, I'm afraid you don't have long to live." "Can I have a second opinion?" asked Wally. "Certainly," replied the doctor. "Your feet smell as well." 
-Then Wally asked, "Doctor, how long have I got?" "Ten," said the doctor. "Ten what? Years? Months? Weeks?" The doctor continued, "Nine, eight, seven..."
+The doctor said, "Wally, I'm afraid you don't have long to live." "Can I have a second opinion?" asked Wally. "Certainly," replied the doctor. "Your feet smell as well." Then Wally asked, "Doctor, how long have I got?" "Ten," said the doctor. "Ten what? Years? Months? Weeks?" The doctor continued, "Nine, eight, seven…"
 
 ---
 
@@ -968,7 +967,7 @@ Did you know that one egg is always un oeuf?
 
 ## Joke 180
 
-Did you know, if you ask a wind turbine about its taste in music, it's most likely to say “I’m a big metal fan”?
+Did you know, if you ask a wind turbine about its taste in music, it's most likely to say "I'm a big metal fan"?
 
 ---
 
@@ -980,25 +979,25 @@ I used to be addicted to the Hokey Cokey, but I turned myself around.
 
 ## Joke 183
 
-Two wrongs don’t make a right, but two Wrights made an aeroplane.
+Two wrongs don't make a right, but two Wrights made an aeroplane.
 
 ---
 
 ## Joke 184
 
-You don’t meet many people called Lance nowadays, but, in medieval times, people were called Lancelot.
+You don't meet many people called Lance nowadays, but, in medieval times, people were called Lancelot.
 
 ---
 
 ## Joke 185
 
-Student, “When I have alphabet soup, I eat only the vowels.” English teacher, “Why?” Student, “Sometimes.” (“Y?” 🤦)
+Student: "When I have alphabet soup, I eat only the vowels." English teacher: "Why?" Student: "Sometimes." ("Y?" 🤦).
 
 ---
 
 ## Joke 186
 
-Why do Scandinavian warships have barcodes on their sides? So that, when they return to harbour, they can Scandinavian. (Scan the navy in 🤦)
+Why do Scandinavian warships have barcodes on their sides? So that, when they return to harbour, they can Scandinavian. (Scan the navy in 🤦).
 
 ---
 
@@ -1016,7 +1015,7 @@ Our cemetery is very popular. People are dying to get in, but nobody living loca
 
 ## Joke 189
 
-I asked the surgeon whether I could administer my own anaesthetic. He said, “Knock yourself out.”
+I asked the surgeon whether I could administer my own anaesthetic. He said, "Knock yourself out."
 
 ---
 
@@ -1040,7 +1039,7 @@ What are ten things you can always count on? Your fingers.
 
 ## Joke 193
 
-Why couldn’t the pony sing a lullaby? It was a little horse.
+Why couldn't the pony sing a lullaby? It was a little horse.
 
 ---
 
@@ -1064,7 +1063,7 @@ Why did the scarecrow win an award? Because he was outstanding in his field.
 
 ## Joke 197
 
-What did the duck say when it bought some lip balm? “Put it on my bill.”
+What did the duck say when it bought some lip balm? "Put it on my bill."
 
 ---
 
@@ -1076,7 +1075,7 @@ A man sued an airline after it misplaced his luggage. Unfortunately, he lost his
 
 ## Joke 199
 
-A librarian whispered, “Would you like a book about paranoia?” Then she leaned closer and said, “It’s right behind you.”
+A librarian whispered, "Would you like a book about paranoia?" Then she leaned closer and said, "It's right behind you."
 
 ---
 
@@ -1106,7 +1105,7 @@ Why do divers fall backwards into the sea? Because, if they fell forwards, they'
 
 ## Joke 204
 
-I was going to sail around the globe in the world’s smallest ship, but I bottled it.
+I was going to sail around the globe in the world's smallest ship, but I bottled it.
 
 ---
 
@@ -1130,13 +1129,13 @@ I was told my password needed eight characters, so I entered 'SnowWhiteandtheSev
 
 ## Joke 208
 
-I’ve just returned from a once-in-a-lifetime holiday. Never again.
+I've just returned from a once-in-a-lifetime holiday. Never again.
 
 ---
 
 ## Joke 209
 
-There’s a fine line between a numerator and a denominator. Speaking of fractions; never talk to Pi. It'll go on and on forever.
+There's a fine line between a numerator and a denominator. Speaking of fractions; never talk to Pi. It'll go on and on forever.
 
 ---
 
@@ -1148,19 +1147,19 @@ Surely every car is a people carrier?
 
 ## Joke 211
 
-Combine harvesters and you’ll have an enormous restaurant.
+Combine harvesters and you'll have an enormous restaurant.
 
 ---
 
 ## Joke 212
 
-We have two boys, Five and Six. We aren’t very good at naming things.
+We have two boys, Five and Six. We aren't very good at naming things.
 
 ---
 
 ## Joke 213
 
-Whenever somebody says, “I don’t believe in coincidences,” I reply, “Oh my goodness—neither do I!”
+Whenever somebody says, "I don't believe in coincidences," I reply, "Oh my goodness—neither do I!"
 
 ---
 
@@ -1178,7 +1177,7 @@ People who say bath bombs are relaxing have clearly never tried carrying one hom
 
 ## Joke 216
 
-I’m not nostalgic, although I used to be. Those were the days.
+I'm not nostalgic, although I used to be. Those were the days.
 
 ---
 
@@ -1190,25 +1189,25 @@ Tables: are they really furniture, or merely extra floor on stilts?
 
 ## Joke 218
 
-What did the buffalo say when its child left for university? “Bison.”
+What did the buffalo say when its child left for university? "Bison."
 
 ---
 
 ## Joke 219
 
-I’ve got a joke about Elton John. It’s a little bit funny.
+I've got a joke about Elton John. It's a little bit funny.
 
 ---
 
 ## Joke 220
 
-A cowboy asked me to help him round up 18 cows. I said, “Certainly—that’s 20 cows.”
+A cowboy asked me to help him round up 18 cows. I said, "Certainly—that's 20 cows."
 
 ---
 
 ## Joke 221
 
-A thesaurus is wonderful. There’s no other word for it.
+A thesaurus is wonderful. There's no other word for it.
 
 ---
 
@@ -1220,7 +1219,7 @@ The advantage of lending someone your time machine is that you get it back immed
 
 ## Joke 223
 
-I spent the entire morning building a time machine. That’s four hours of my life I’m definitely getting back.
+I spent the entire morning building a time machine. That's four hours of my life I'm definitely getting back.
 
 ---
 
@@ -1244,25 +1243,25 @@ I used to play in a band called The Prevention. We hoped people would say we wer
 
 ## Joke 227
 
-I collect all the jumpers left in the park at weekends. It’s a difficult job because they keep moving the goalposts.
+I collect all the jumpers left in the park at weekends. It's a difficult job because they keep moving the goalposts.
 
 ---
 
 ## Joke 228
 
-What’s the difference between a hippo and a Zippo? One is very heavy; the other is a little lighter.
+What's the difference between a hippo and a Zippo? One is very heavy; the other is a little lighter.
 
 ---
 
 ## Joke 229
 
-If I could take just one thing to a desert island, I probably wouldn’t go.
+If I could take just one thing to a desert island, I probably wouldn't go.
 
 ---
 
 ## Joke 230
 
-People are always telling me to live my dreams, but I really don’t want to be naked in an exam I haven’t revised for.
+People are always telling me to live my dreams, but I really don't want to be naked in an exam I haven't revised for.
 
 ---
 
@@ -1466,7 +1465,7 @@ I think it's wrong that only one company makes the game Monopoly.
 
 ## Joke 265
 
-Some people have a way with words, and other people... not have way.
+Some people have a way with words, and other people… not have way.
 
 ---
 
@@ -1628,7 +1627,7 @@ Apparently one in three Britons is conceived in an IKEA bed, which seems improba
 
 ## Joke 292
 
-Wally got sacked three days into his new job painting the white lines on the roads. On his first day, he painted eight miles. On his second day, he painted three miles. On his third day, he managed only one mile. The boss was puzzled and asked, “Wally, why are you painting less every day?” Wally said, “Because every day, I get farther and farther away from the can of paint.”
+Wally got sacked three days into his new job painting the white lines on the roads. On his first day, he painted eight miles. On his second day, he painted three miles. On his third day, he managed only one mile. The boss was puzzled and asked, "Wally, why are you painting less every day?" Wally said, "Because every day, I get farther and farther away from the can of paint."
 
 ---
 
@@ -1742,13 +1741,13 @@ What do you get hanging from apple trees? Sore arms.
 
 ## Joke 311
 
-What did the janitor say when he jumped out of the cupboard? “Supplies!”
+What did the janitor say when he jumped out of the cupboard? "Supplies!"
 
 ---
 
 ## Joke 312
 
-Two parrots are sitting on a perch. One turns to the other and asks, “Do you smell fish?”
+Two parrots are sitting on a perch. One turns to the other and asks, "Do you smell fish?"
 
 ---
 
@@ -1838,7 +1837,7 @@ Do I enjoy making courthouse puns? Guilty.
 
 ## Joke 327
 
-Do you know what the word “was” was initially? Before “was” was “was”, “was” was “is”.
+Do you know what the word "was" was initially? Before "was" was "was", "was" was "is".
 
 ---
 
@@ -1904,7 +1903,7 @@ Americans can't switch from pounds to kilograms overnight. That would cause mass
 
 ## Joke 338
 
-A termite walks into a bar and asks, “Is the bar tender here?”
+A termite walks into a bar and asks, "Is the bar tender here?"
 
 ---
 
@@ -1940,7 +1939,7 @@ I asked my date to go to the gym the other day. They never showed up. That's whe
 
 ## Joke 344
 
-I asked the checkout girl for a date. She said, “They're in the fruit aisle next to the bananas.”
+I asked the checkout girl for a date. She said, "They're in the fruit aisle next to the bananas."
 
 ---
 
@@ -1958,12 +1957,528 @@ My boss told me he was going to fire the person with the worst posture. I have a
 
 ## Joke 347
 
-My friend said to me, “What rhymes with orange.” I said, “No, it doesn't.”
+My friend said to me, "What rhymes with orange." I said, "No, it doesn't."
 
 ---
 
 ## Joke 348
 
-What did the green grape say to the purple grape? “Breathe!”
+What did the green grape say to the purple grape? "Breathe!"
+
+---
+
+## Joke 349
+
+My wife gave me an envelope marked, "Not to be opened until 2027." Inside was a list of reasons why I can't be trusted to carry out simple instructions.
+
+---
+
+## Joke 350
+
+My wife texted me, "You're great," and I replied, "No, you're great." She's been really happy and smiling at me all weekend. I just corrected her grammar. No need to be so excited.
+
+---
+
+## Joke 351
+
+A hacker called me and said he had all my passwords. I got a pen and paper and said, "Thank you for that; what are they?"
+
+---
+
+## Joke 352
+
+I just saw some idiot at the gym put a water bottle in the pringles holder on the treadmill.
+
+---
+
+## Joke 353
+
+A man walked into a hardware store, picked up a can of fly spray and asked the assistant, "Is this good for wasps?" The assistant replied, "No. It kills them."
+
+---
+
+## Joke 354
+
+Job interviewer: "At the start you'll be earning £20,000; later that will increase to £40,000." Me: "OK, I'll come back later."
+
+---
+
+## Joke 355
+
+I hate it when people act all intellectual and talk about Mozart when they've probably never even seen one of his paintings.
+
+---
+
+## Joke 356
+
+Me: "It doesn't have a tail, so I'm pretty sure it's a hamster." Tech support: *sigh* "Fine. Right-click on your hamster…"
+
+---
+
+## Joke 357
+
+When I'm behind a slow car I steer my car a little to the right so the people behind me can see it isn't my fault.
+
+---
+
+## Joke 358
+
+The fastest land mammal is a toddler who's been asked what's in their mouth.
+
+---
+
+## Joke 359
+
+My favorite thing is to clean the kitchen so I can cook dinner so I can clean the kitchen again until I die.
+
+---
+
+## Joke 360
+
+I just realized my emergency contact is my husband. The same man who can't find his wallet, doesn't know his doctor's name, and ignores unknown calls… Yeah, call him.
+
+---
+
+## Joke 361
+
+Boss: "You're fired!" Me: *turns in gun and badge* Boss: "You're an IT administrator. Where did you get those?"
+
+---
+
+## Joke 362
+
+If you spell "Absolutely Nothing" backwards you get "Gnihton Yletulosba", which means absolutely nothing.
+
+---
+
+## Joke 363
+
+The teacher called and said my son has a learning difficulty, but it was actually me doing his homework.
+
+---
+
+## Joke 364
+
+I was in a shoe shop this morning trying on a shoe. I said to the assistant, "It's too tight." She said, "Try it with the tongue out." I said, "It'th nho ghood, it'th thtill thoo thight."
+
+---
+
+## Joke 365
+
+A man loses three fingers in a work accident. At the hospital, he asks the doctor, "Will I be able to drive with this hand?" The doctor replies, "Maybe, but I wouldn't count on it."
+
+---
+
+## Joke 366
+
+I bought a vinyl record yesterday called "Sounds Wasps Make". When I got home and played it, I said to myself, "This doesn't sound anything like wasps." Then I realised I was playing the bee side…
+
+---
+
+## Joke 367
+
+I went to the doctor and he said, "Don't eat anything fatty." I said, "What, like burgers?" He said, "No, fatty. Just don't eat anything."
+
+---
+
+## Joke 368
+
+When my daughter was 7 years-old she once interrupted a bedtime story to tell me, "In a pie-eating contest, it doesn't matter if you win or lose because you get to eat pie." I think about that a lot.
+
+---
+
+## Joke 369
+
+Cars these days have way too many confusing gadgets. I tried to reverse, and it played a video of somebody getting run over by a car.
+
+---
+
+## Joke 370
+
+My wife asked me, "Why don't you treat me like you did when we were first dating?" So I took her to dinner and a movie then dropped her off at her parents' house.
+
+---
+
+## Joke 371
+
+Who knew that the hardest part of being an adult is figuring out what to cook for dinner every single night for the rest of your life, until you die.
+
+---
+
+## Joke 372
+
+My dad texted me asking, "What does IDK mean?" I said, "I don't know…" He said, "Darn it, nobody does."
+
+---
+
+## Joke 373
+
+I finally did it. I bought a pair of shoes with memory foam insoles: No more forgetting why I walked into the kitchen.
+
+---
+
+## Joke 374
+
+My friend, a magician, asked his wife to "pick a card, any card." So she took his Visa.
+
+---
+
+## Joke 375
+
+I asked my daughter to pass me the phone book. She laughed and passed me her phone. Now the spider is dead, her phone is broken and she isn't talking to me.
+
+---
+
+## Joke 376
+
+I was supposed to get older and wiser, but I'm just getting older and wider.
+
+---
+
+## Joke 377
+
+I don't know how to act my age. I've never been this old before.
+
+---
+
+## Joke 378
+
+The people who make fitted sheets need to sit down with the people who make mattresses and get on the same page. Making the bed shouldn't be like putting a swimming cap over a fridge.
+
+---
+
+## Joke 379
+
+When leaving the house does anyone else tell their pets they'll be home later or is it just me?
+
+---
+
+## Joke 380
+
+Don't worry about getting older, you're still gonna do dumb stuff only slower.
+
+---
+
+## Joke 381
+
+I like having conversations with kids. Grownups never ask me what my third favorite color is.
+
+---
+
+## Joke 382
+
+I used to sneak out of my house to go to parties. Now I sneak out of parties to go to my house.
+
+---
+
+## Joke 383
+
+When your girlfriend comes home in a white suit, covered in bee stings and smelling like honey. You know she's a keeper.
+
+---
+
+## Joke 384
+
+When I was a kid, bedtime was 9 pm. I couldn't wait to be a grownup so I could go to bed anytime I wanted. Turns out that *is* 9 pm.
+
+---
+
+## Joke 385
+
+"Do not touch" must be one of the scariest things to read in braille.
+
+---
+
+## Joke 386
+
+It's like my mom always told me… "You might not be the dumbest guy in the world, but you better hope he doesn't die."
+
+---
+
+## Joke 387
+
+Me: "I am surprised at how exhausted I am already." Personal trainer: "This was the tour of the gym."
+
+---
+
+## Joke 388
+
+My buddy wants to get a nose job and asked which one I liked the most, but I didn't answer. After all… you can pick your friends, you can pick your nose, but you can't pick your friend's nose.
+
+---
+
+## Joke 389
+
+Whoever came up with the spelling for "receipt" was an idiot.
+
+---
+
+## Joke 390
+
+Being an adult is so weird. I'm just unsupervised all the time? That can't be safe.
+
+---
+
+## Joke 391
+
+85% of people don't know how to do basic math. Thank God I'm part of the other 25%.
+
+---
+
+## Joke 392
+
+Husband: "The nerve of that doctor, saying I'm so old that he referred me to an archaeologist." Wife: "Audiologist, dear. You can't hear very well…"
+
+---
+
+## Joke 393
+
+People often ask me why I prefer to teach maths instead of English. I tell them it's because fractions speak louder than verbs.
+
+---
+
+## Joke 394
+
+I drew Mark Hamill on my wife's forehead while she was asleep. You should have seen the Luke on her face.
+
+---
+
+## Joke 395
+
+Eating a second biscuit because I ate the first one absentmindedly and didn't appreciate it enough.
+
+---
+
+## Joke 396
+
+Got up this morning and ran around the block 5 times. Then I got tired, so I picked up the block and put it back in the toy chest.
+
+---
+
+## Joke 397
+
+Top life hack: If you tuck one trouser leg into your sock people stop expecting much from you.
+
+---
+
+## Joke 398
+
+Don't wear headphones while vacuuming. I've just finished the whole house before realising that the vacuum wasn't plugged in.
+
+---
+
+## Joke 399
+
+My wife told me, "Don't get upset if someone calls you fat. You're much bigger than that."
+
+---
+
+## Joke 400
+
+I once dated a girl who had a twin, and people always asked how I could tell them apart. Easy - Alison painted her nails red… and Bob had a beard.
+
+---
+
+## Joke 401
+
+I wonder what my parents did to fight boredom before the internet? I asked my 18 brothers and sisters and they don't know either.
+
+---
+
+## Joke 402
+
+If the number 666 is considered evil… 25.8069758 is the root of all evil.
+
+---
+
+## Joke 403
+
+I'm on a plane and the lunch choices are white meat chicken or German sausage. Unfortunately, I'm seated in the last row. I'm hoping for the breast, but preparing for the wurst.
+
+---
+
+## Joke 404
+
+Incorrectly is the only word that, when spelled correctly, is still spelled incorrectly.
+
+---
+
+## Joke 405
+
+I bought a little bag of air today… The company that made it was kind enough to put some potato chips in it as well!
+
+---
+
+## Joke 406
+
+My dad was a conjoined twin. We used to call his twin my uncle on my father's side. After they were surgically separated… He became my uncle once removed.
+
+---
+
+## Joke 407
+
+You know what annoys me is when you go round to someone's house and they make you take your shoes off at the front door. 9 times out of 10 they don't even have a bouncy castle.
+
+---
+
+## Joke 408
+
+If a woman says she'll be ready in 15 minutes, she will be. No need to remind her every half hour.
+
+---
+
+## Joke 409
+
+I was in a job interview yesterday and the interviewer asked if I could perform under pressure. I said, "No, but I can hum Bohemian Rhapsody."
+
+---
+
+## Joke 410
+
+My wife said, "I can think of 14 reasons to leave you, plus your obsession with tennis." I replied, "That's 15-love."
+
+---
+
+## Joke 411
+
+Amal and Juan are identical twins. Their mom only carries one baby photo in her wallet. Because if you've seen Juan you've seen Amal.
+
+---
+
+## Joke 412
+
+All of my childhood punishments have become my adult goals: Eating vegetables, Staying home, Taking a nap, Going to bed early.
+
+---
+
+## Joke 413
+
+I took my suit to the cleaners, who wanted to charge me $15.00 So I gave my suit to the charity shop next door. They cleaned and pressed it and put it in the window. I bought it for $4.50!
+
+---
+
+## Joke 414
+
+My wife yelled from upstairs and asked, "Do you ever get a shooting pain across your body, like someone's got a voodoo doll of you and they're stabbing it?" I replied, "No." She responded, "How about now?"
+
+---
+
+## Joke 415
+
+I've asked my wife to polish my medieval battle suit while I go to the pub. She always said she wanted a night in shining armour.
+
+---
+
+## Joke 416
+
+I had a terrifying experience last night. I was home alone, relaxing in the bathtub, when all of a sudden… I felt a tap on my shoulder.
+
+---
+
+## Joke 417
+
+A photographer was tragically crushed when a massive block of cheddar fell on him. In fairness, the people he was photographing tried to warn him.
+
+---
+
+## Joke 418
+
+Whoever designed wet wipe packs where you pull one out and four come with it should have been put in charge of cash machines.
+
+---
+
+## Joke 419
+
+Hiking in your 50s is a great way to meet new people. Today I met two paramedics, three nurses and a heart specialist.
+
+---
+
+## Joke 420
+
+As I handed my dad his 50th birthday card, he looked at me with tears in his eyes and said, "You know… one would've been enough."
+
+---
+
+## Joke 421
+
+To whoever stole my camouflage jacket and my flip-flops… You can hide, but you can't run!
+
+---
+
+## Joke 422
+
+BREAKING: A woman has fainted and fallen onto the baggage carousel at the airport. But she's slowly coming around now.
+
+---
+
+## Joke 423
+
+I grilled a chicken for two hours… Still wouldn't tell me why it crossed the road.
+
+---
+
+## Joke 424
+
+Did you know French fries weren't actually first made in France? They were originally cooked in Greece.
+
+---
+
+## Joke 425
+
+A man bursts into a busy doctor's surgery yelling, "Doctor, help! I'm shrinking!" The doctor looks at him and says, "I'm sorry, you'll just have to be a little patient."
+
+---
+
+## Joke 426
+
+My friend said his favorite Star Wars quote was, "Aar Luke, ye scurvy dog, I be yer father." I think he got a pirated copy.
+
+---
+
+## Joke 427
+
+Did you hear about the big Lego sale? People were lined up for blocks.
+
+---
+
+## Joke 428
+
+I arrived early at the restaurant. The manager asked, "Do you mind waiting a bit?" I said, "No." "Good," he said. "Take these drinks to table nine."
+
+---
+
+## Joke 429
+
+My son was just born and another dad at the nursery congratulated me, saying his daughter was born yesterday. He said maybe they'll marry each other. Sure, like my son is going to marry someone twice his age.
+
+---
+
+## Joke 430
+
+I was flirting with a gorgeous woman at the bar last night. I told her, "Believe it or not, I've got the most famous last name in Ireland." She smiled and said, "Oh really?" I said, "How did you know?!"
+
+---
+
+## Joke 431
+
+What did the Frenchman say when he went down the slide? "Oui!"
+
+---
+
+## Joke 432
+
+I moved into an igloo and my friends threw me a housewarming party… Worst idea ever. Now I'm homeless.
+
+---
+
+## Joke 433
+
+When I was younger I had a job as a shop window mannequin. I held that position for a long time.
+
+---
+
+## Joke 434
+
+I opened my birthday card and a bunch of rice fell out… I instantly knew who it was from. Uncle Ben.
 
 ---
