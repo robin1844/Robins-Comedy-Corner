@@ -2482,3 +2482,111 @@ When I was younger I had a job as a shop window mannequin. I held that position 
 I opened my birthday card and a bunch of rice fell out… I instantly knew who it was from. Uncle Ben.
 
 ---
+
+## Joke 435
+
+India has started weighing all its elephants. It’s happening on a massive scale.
+
+---
+
+## Joke 436
+
+I wonder how many chameleons sneaked onto Noah’s Ark.
+
+---
+
+## Joke 437
+
+I’ve stopped asking rhetorical questions. What’s the point?
+
+---
+
+## Joke 438
+
+Nationwide must have looked rather silly when it opened its first branch.
+
+---
+
+## Joke 439
+
+I sailed through my driving test. That was a mistake. Next time I'll do it in a car.
+
+---
+
+## Joke 440
+
+My friend invented a new relay baton. He came up with the idea and I ran with it.
+
+---
+
+## Joke 441
+
+I used to hate playing darts, but recently I did a complete 180.
+
+---
+
+## Joke 442
+
+Two little boys were at a wedding when one asked, “How many wives can a man have?” His friend answered, “Sixteen: four better, four worse, four richer and four poorer.”
+
+---
+
+## Joke 443
+
+People who wash, dry, fold and put away their laundry all on the same day are on a whole different level of adulting.
+
+---
+
+## Joke 444
+
+Research shows that laughing for two minutes is as healthy as a twenty-minute run. So now I just sit in the park laughing at all the joggers.
+
+---
+
+## Joke 445
+
+Going to Blockbuster, browsing the shelves, choosing a film, renting it and buying snacks was still quicker than finding something to watch on Netflix.
+
+---
+
+## Joke 446
+
+I picked up a hitchhiker who seemed like a nice chap. After a few miles, he asked if I was worried that he might be a serial killer. I told him the odds of two serial killers being in the same car were extremely unlikely.
+
+---
+
+## Joke 447
+
+Does anyone else have a plastic bag full of plastic bags in their house, or is it just me?
+
+---
+
+## Joke 448
+
+Our parents used to drop us off at school with no water bottle, no phone and no snacks, yet somehow we survived.
+
+---
+
+## Joke 449
+
+Cottage cheese isn’t actually cheese. It’s just a curd to me.
+
+---
+
+## Joke 450
+
+I remember thinking, as I taped a piranha to my boomerang, “This could come back to bite me.”
+
+---
+
+## Joke 451
+
+The oldest profession is actually the DJ. They’ve been around since records began.
+
+---
+
+## Joke 452
+
+I didn’t think food could make telephone calls, but then—boom! Onion rings.
+
+---
