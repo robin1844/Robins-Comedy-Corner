@@ -2590,3 +2590,153 @@ The oldest profession is actually the DJ. They’ve been around since records be
 I didn’t think food could make telephone calls, but then—boom! Onion rings.
 
 ---
+
+## Joke 453
+
+I'm on the couch, hiding from exercise. If anyone asks, I'm in the fitness protection program.
+
+---
+
+## Joke 454
+
+I'm not a magician but I once turned a back rub into two kids and a mortgage.
+
+---
+
+## Joke 455
+
+"Never apologise and never explain." Sorry - that's my motto.
+
+---
+
+## Joke 456
+
+I've entered the world's tightest-hat competition. I hope I can pull it off.
+
+---
+
+## Joke 457
+
+I threw a boomerang a few years ago, and now I live in constant fear 😱
+
+---
+
+## Joke 458
+
+I can tell if people are being judgemental just by looking at them.
+
+---
+
+## Joke 459
+
+I failed maths so many times at school I couldn't even count.
+
+---
+
+## Joke 460
+
+I asked an IT guy how to make a motherboard. He said, "I tell her about my job."
+
+---
+
+## Joke 461
+
+I'm not lazy - I'm energy efficient.
+
+---
+
+## Joke 462
+
+My brain has too many tabs open, and half of them have stopped responding.
+
+---
+
+## Joke 463
+
+Procrastination is a dish best served later.
+
+---
+
+## Joke 464
+
+My boss said I couldn't bring my dog into work, so I tied her to a tree outside. She isn't happy about it, but my dog is having a great time exploring our office and peeing in the plants.
+
+---
+
+## Joke 465
+
+I asked my German friend if he knew the square root of 81. He said no.
+
+---
+
+## Joke 466
+
+A woman at the gym asked why I was sitting still on an exercise bike. I said, "I'm going downhill."
+
+---
+
+## Joke 467
+
+Last night the internet stopped working so I spent a few hours with my family. They seem like good people.
+
+---
+
+## Joke 468
+
+I joined a gym and said to the trainer, “I want to impress beautiful girls, which machine should I use?” She told me to try the ATM outside.
+
+---
+
+## Joke 469
+
+How to dress for cold weather: 1. Put pajamas back on. 2. Get back in bed.
+
+---
+
+## Joke 470
+
+I've been taking Viagra for my sunburn. It doesn't help, but at least it keeps the sheets off my legs.
+
+---
+
+## Joke 471
+
+I don't understand why banks get upset when you can't repay a loan… You already knew I had no money when I came to borrow it…
+
+---
+
+## Joke 472
+
+Women have given up trying to find a man who will take care of them. Now they're just looking for one they don't need to take care of.
+
+---
+
+## Joke 473
+
+I can't decide if people who wear pajamas in public have given up on life or are living it to the fullest.
+
+---
+
+## Joke 474
+
+I can't believe people are setting off fireworks in October. The dog got the fright of his life and knocked the Christmas tree over.
+
+---
+
+## Joke 475
+
+My wife thinks I'm obsessed with astronomy. I mean, what planet is she on?
+
+---
+
+## Joke 476
+
+I told my sister a secret and said, "Don't tell Mum." She told Mum, then told her not to tell me. Now Mum called me and told me she knows, but not to tell my sister. So now we all know, but nobody can admit it.
+
+---
+
+## Joke 477
+
+I cannot emphasize this enough. If there is a toilet in your dream, DO NOT use it.
+
+---
